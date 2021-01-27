@@ -13,3 +13,5 @@ Key take-aways and actions:
 2. Growth 🚀🚀🚀
 * Focus on learning new things in the first 4 years of career. Find your job needs, build up and stick to 4-5 skills as your core 🤘🏼🤘🏼🤘🏼 to make yourself unique and standout. But don't forget to be open-minded and have some knowledge on other things
 * Engage with the community and interact with others by sharing your work and learning from others, it is all-time important!
+
+Interested? Check out the notebook! 👌🏼👌🏼👌🏼
